@@ -52,7 +52,7 @@
 
 ##### See Training 
 
-- 🔞 See Training 🎥 https://www.youtube.com/watch?v=XMAokteVQjY  🎥
+- 🔞 See Training 🎥 https://www.youtube.com/watch?v=toPKFKANAS8&feature=youtu.be  🎥
 
 ----------------------
 
